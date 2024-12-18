@@ -1,1 +1,1 @@
-# quiz
+#It seems like you're describing a quiz game with 10 questions, where you need to determine the correct option for each question. If you could clarify or share a specific question and its options, I can help identify the correct answer. Feel free to share the details!
